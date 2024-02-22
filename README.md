@@ -2,11 +2,11 @@
  
 Perkenalkan nama saya **Muammaruddin**.<br>
  
-Saya seorang **Curriculum Developer** di [Dicoding](https://www.dicoding.com/).<br>
+Saya seorang mahasiswa **Universitas Hamzanwadi** di [Dicoding](https://www.dicoding.com/).<br>
  
-Saya bertanggung jawab pada kualitas materi iOS dengan dibekali [sertifikasi dari University of Toronto](https://www.coursera.org/account/accomplishments/specialization/CLKJD8XBXJ3M).<br>
+Saya mengikuti program kampus merdeka **Dikoding**.<br>
  
-Saya juga memiliki gelar Google Associate Android Developer sejak 2024.<br>
+Saya masih aktif menjadi mahasiswa di universitas hamzanwadi sejak tahun 2021.<br>
  
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/gilang-adhan/)ku ya.
  
